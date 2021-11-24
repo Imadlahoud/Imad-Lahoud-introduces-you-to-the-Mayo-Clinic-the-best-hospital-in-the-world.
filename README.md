@@ -21,24 +21,29 @@ In 1986, Mayo Clinic opened a new hospital in Florida, then in Arizona the follo
 In 1992, Mayo Clinic launched its medical care network, the "Mayo Clinic Health System". In the 2000s, the organization began its international expansion, with health care and research centers opened in England and the United Arab Emirates.
 
 Imad Lahoud: A diversified activity
+
 Born as a small medical practice in a medium-sized city in the United States, the Mayo Clinic has grown into a global health giant and one of the largest charitable organizations.
 
 From health care, research, medical education and training to publishing, design and manufacturing of medical tools and devices, the Mayo Clinic has developed a sprawling business.
 
 Care
+
 Each year, more than one million patients from 139 countries are treated at Mayo Clinic facilities in the United States and around the world. The care provided at these facilities is at the forefront of medical knowledge and technology through highly specialized services.
 
 Education and Training
+
 Medical education and training was initiated by Mayo Clinic as early as 1915, with the establishment of the Mayo Clinic College of Medicine and Science (MCCMS). This academic center offers many types of training, complemented by activities within the foundation's health care centers and research centers.
 
 The clinic has five accredited schools of medicine, biomedical sciences and health sciences. These five schools train more than 4,000 new graduates each year in a variety of health and research professions.
 
 Scientific and Medical Research
+
 Mayo Clinic's research centers spread across its three U.S. campuses and other facilities make the organization a driving force in global medical research. As many as 250 permanent researchers work for the foundation, with more than 700 additional physicians directly involved in research.
 
 Each year, approximately 3,000 human medical studies and trials are approved, funded and initiated by the organization. Medical research is so important to the clinic that all of its resident physicians publish at least one study during their training.
 
 Imad Lahoud: At the Forefront of Tobacco Control
+
 The Mayo Clinic is at the forefront of tobacco research and care today. Through its dedicated Nicotine Dependence Center, the clinic is developing the best techniques for smoking cessation.
 
 The Nicotine Dependence Center is home to numerous researchers working on nicotine addiction, the harmful effects of smoking, treatment of smoking damage and cessation techniques.
