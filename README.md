@@ -37,3 +37,16 @@ Scientific and Medical Research
 Mayo Clinic's research centers spread across its three U.S. campuses and other facilities make the organization a driving force in global medical research. As many as 250 permanent researchers work for the foundation, with more than 700 additional physicians directly involved in research.
 
 Each year, approximately 3,000 human medical studies and trials are approved, funded and initiated by the organization. Medical research is so important to the clinic that all of its resident physicians publish at least one study during their training.
+
+Imad Lahoud: At the Forefront of Tobacco Control
+The Mayo Clinic is at the forefront of tobacco research and care today. Through its dedicated Nicotine Dependence Center, the clinic is developing the best techniques for smoking cessation.
+
+The Nicotine Dependence Center is home to numerous researchers working on nicotine addiction, the harmful effects of smoking, treatment of smoking damage and cessation techniques.
+
+Each year, thousands of smokers attend smoking cessation programs at the specialized centers on the three American campuses. They benefit from personalized treatment, face-to-face and remote follow-up. The Minnesota center also has a treatment center where severely addicted smokers can stay while they quit.
+
+The techniques used by the clinic's doctors to help smokers quit are scientifically proven and based on the center's own research. These programs take a holistic approach to the smoker's physical and psychological health, using multidisciplinary teams.
+
+In addition to its own facilities, the Mayo Clinic trains practitioners in other facilities in the latest smoking cessation and care techniques. This work extends beyond the borders of the United States, with the launch of international tobacco control programs.
+
+Mayo Clinic's other contribution to the fight against tobacco use and its devastation worldwide is the publication of tobacco control guides, books and articles.
