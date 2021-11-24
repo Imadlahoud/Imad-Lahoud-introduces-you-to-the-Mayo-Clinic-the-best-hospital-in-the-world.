@@ -1,4 +1,4 @@
-# Imad-Lahoud-introduces-you-to-the-Mayo-Clinic-the-best-hospital-in-the-world.
+# Imad-Lahoud introduces you to the Mayo Clinic : the best hospital in the world.
 
 Imad Lahoud is CTO of MEDAD. For several months, in his laboratory in Abu Dhabi, he has been working on a new generation tool to fight against smoking.
 
